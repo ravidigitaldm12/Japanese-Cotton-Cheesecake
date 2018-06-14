@@ -1,0 +1,2 @@
+# Japanese-Cotton-Cheesecake
+When it’s come to talk about cake every individual love to have Cake. The cake is the only this that’s consumed by every generation except diabetes patient. Here we are going to talk about Japanese Cotton Cheesecake. Because it has the tangy, creamy flavour of cheesecake, with the moist, cotton-soft and great texture. Japanese cheesecake is very different from the regular cheesecake.  It is very easy and simple snacks recipes to make at home.  Source:- https://indiafoodnetwork.in/food-stories/people/midweek-crush-japanese-cotton-cheesecake/
